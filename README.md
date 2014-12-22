@@ -36,403 +36,104 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Il pastor fido: or The faithfull shepheard. Translated out of Italian into EnglishPastor fido. Engli
+
+1. To the right worthie and learned Knight, Syr Edward
+Dymock, Champion to her Maieſtie, concerning
+this tranſlation of Pastor Fido.
+
+1. A Sonnet of the Tranſlator, dedicated to that honourable Knight
+his kinſman, Syr Edward Dymock.
+
+1. TO THE RIGHT VVORTHY
+and learned Knight, Syr Edward Dymock,
+Champion to her Maiestie.
+
+1. The perſons which ſpeake in it.
+
 #####Body#####
+
+1. PASTOR FIDO,
+OR
+The faithfull Shepheard.
 Scene. 1. Act. 1.Siluio. Linco.GO you that haue enclos'd the dreadfull beaſt,And giue the ſigne that
-    _ Scene. 1. Act. 1.
+      * Scene. 1. Act. 1.
 
-    _ Sce. 2.
+      * Sce. 2.
 
-    _ Scene. 3. 
+      * Scene. 3. 
 
-    _ Sce. 4.
+      * Sce. 4.
 
-    _ Sce. 5.
-
-    _ Act. 2. Scene. 1.
-
-    _ Sce. 2.
-
-    _ Scene. 3 Siluio. Dorindo.
-
-    _ Scene 4.
-
-    _ Scene 5.
-
-    _ Scene 6.
-Chorus.Great was her fault and errour ſure,That did occaſion all our teene:Who loues great lawes hol
-    _ Scene 1.
-
-    _ Sce. 2.
-
-    _ Sce. 3.
-
-    _ Scene 4.
-
-    _ Sce. 5.
-
-    _ Sce. 6.
-
-    _ Sce. 7.
-
-    _ Sce. 8.
-
-    _ SCE. 9.
-
-    _ SCE. 1.
-
-    _ SCE. 2.
-
-    _ SCE. 3.
-
-    _ SCE. 4.
-
-    _ SCE. 5.
-
-    _ SCE. 6.
-
-    _ SCE. 7.
-
-    _ SCE. 8.
-
-    _ SCE. 9.
-
-    _ SCENA. 1.
-
-    _ SCE. 2.
-
-    _ ACTVS. 5 SCE. 3.
-
-    _ ACT. 5. SCE. 4. Carino, Montanio,
-Nicander, Mirtillo, Chorus of Shepheards.
-
-    _ ACTA 5. SCE. 5. Montan. Carino, Dametas.
-
-    _ Act. 5. Sce. 6.
-
-    _ Sce. 7.
-
-    _ Sce. 8.
-
-    _ Sce. 9.
-
-    _ Sce. 10.
+      * Sce. 5.
 Act. 2. Scene. 1.Ergasto. Mirtillo.HOw I haue ſearcht alongſt the riuers ſide,About the meadowes, fo
-    _ Scene. 1. Act. 1.
+      * Act. 2. Scene. 1.
 
-    _ Sce. 2.
+      * Sce. 2.
 
-    _ Scene. 3. 
+      * Scene. 3 Siluio. Dorindo.
 
-    _ Sce. 4.
+      * Scene 4.
 
-    _ Sce. 5.
+      * Scene 5.
 
-    _ Act. 2. Scene. 1.
+      * Scene 6.
+Chorus.Great was her fault and errour ſure,That did occaſion all our teene:Who loues great lawes holScene 1.Mirtillo.O Spring, the gentle childhood of the yeare,Mother of floures, freſh hearbs, & freſ
+      * Scene 1.
 
-    _ Sce. 2.
+      * Sce. 2.
 
-    _ Scene. 3 Siluio. Dorindo.
+      * Sce. 3.
 
-    _ Scene 4.
+      * Scene 4.
 
-    _ Scene 5.
+      * Sce. 5.
 
-    _ Scene 6.
-Chorus.Great was her fault and errour ſure,That did occaſion all our teene:Who loues great lawes hol
-    _ Scene 1.
+      * Sce. 6.
 
-    _ Sce. 2.
+      * Sce. 7.
 
-    _ Sce. 3.
+      * Sce. 8.
 
-    _ Scene 4.
-
-    _ Sce. 5.
-
-    _ Sce. 6.
-
-    _ Sce. 7.
-
-    _ Sce. 8.
-
-    _ SCE. 9.
-
-    _ SCE. 1.
-
-    _ SCE. 2.
-
-    _ SCE. 3.
-
-    _ SCE. 4.
-
-    _ SCE. 5.
-
-    _ SCE. 6.
-
-    _ SCE. 7.
-
-    _ SCE. 8.
-
-    _ SCE. 9.
-
-    _ SCENA. 1.
-
-    _ SCE. 2.
-
-    _ ACTVS. 5 SCE. 3.
-
-    _ ACT. 5. SCE. 4. Carino, Montanio,
-Nicander, Mirtillo, Chorus of Shepheards.
-
-    _ ACTA 5. SCE. 5. Montan. Carino, Dametas.
-
-    _ Act. 5. Sce. 6.
-
-    _ Sce. 7.
-
-    _ Sce. 8.
-
-    _ Sce. 9.
-
-    _ Sce. 10.
-Scene 1.Mirtillo.O Spring, the gentle childhood of the yeare,Mother of floures, freſh hearbs, & freſ
-    _ Scene. 1. Act. 1.
-
-    _ Sce. 2.
-
-    _ Scene. 3. 
-
-    _ Sce. 4.
-
-    _ Sce. 5.
-
-    _ Act. 2. Scene. 1.
-
-    _ Sce. 2.
-
-    _ Scene. 3 Siluio. Dorindo.
-
-    _ Scene 4.
-
-    _ Scene 5.
-
-    _ Scene 6.
-Chorus.Great was her fault and errour ſure,That did occaſion all our teene:Who loues great lawes hol
-    _ Scene 1.
-
-    _ Sce. 2.
-
-    _ Sce. 3.
-
-    _ Scene 4.
-
-    _ Sce. 5.
-
-    _ Sce. 6.
-
-    _ Sce. 7.
-
-    _ Sce. 8.
-
-    _ SCE. 9.
-
-    _ SCE. 1.
-
-    _ SCE. 2.
-
-    _ SCE. 3.
-
-    _ SCE. 4.
-
-    _ SCE. 5.
-
-    _ SCE. 6.
-
-    _ SCE. 7.
-
-    _ SCE. 8.
-
-    _ SCE. 9.
-
-    _ SCENA. 1.
-
-    _ SCE. 2.
-
-    _ ACTVS. 5 SCE. 3.
-
-    _ ACT. 5. SCE. 4. Carino, Montanio,
-Nicander, Mirtillo, Chorus of Shepheards.
-
-    _ ACTA 5. SCE. 5. Montan. Carino, Dametas.
-
-    _ Act. 5. Sce. 6.
-
-    _ Sce. 7.
-
-    _ Sce. 8.
-
-    _ Sce. 9.
-
-    _ Sce. 10.
+      * SCE. 9.
 SCE. 1.Coriſea.SO fixed was my hart and whole intentIn bringing of this Deere vnto the bow,That I fo
-    _ Scene. 1. Act. 1.
+      * SCE. 1.
 
-    _ Sce. 2.
+      * SCE. 2.
 
-    _ Scene. 3. 
+      * SCE. 3.
 
-    _ Sce. 4.
+      * SCE. 4.
 
-    _ Sce. 5.
+      * SCE. 5.
 
-    _ Act. 2. Scene. 1.
+      * SCE. 6.
 
-    _ Sce. 2.
+      * SCE. 7.
 
-    _ Scene. 3 Siluio. Dorindo.
+      * SCE. 8.
 
-    _ Scene 4.
-
-    _ Scene 5.
-
-    _ Scene 6.
-Chorus.Great was her fault and errour ſure,That did occaſion all our teene:Who loues great lawes hol
-    _ Scene 1.
-
-    _ Sce. 2.
-
-    _ Sce. 3.
-
-    _ Scene 4.
-
-    _ Sce. 5.
-
-    _ Sce. 6.
-
-    _ Sce. 7.
-
-    _ Sce. 8.
-
-    _ SCE. 9.
-
-    _ SCE. 1.
-
-    _ SCE. 2.
-
-    _ SCE. 3.
-
-    _ SCE. 4.
-
-    _ SCE. 5.
-
-    _ SCE. 6.
-
-    _ SCE. 7.
-
-    _ SCE. 8.
-
-    _ SCE. 9.
-
-    _ SCENA. 1.
-
-    _ SCE. 2.
-
-    _ ACTVS. 5 SCE. 3.
-
-    _ ACT. 5. SCE. 4. Carino, Montanio,
-Nicander, Mirtillo, Chorus of Shepheards.
-
-    _ ACTA 5. SCE. 5. Montan. Carino, Dametas.
-
-    _ Act. 5. Sce. 6.
-
-    _ Sce. 7.
-
-    _ Sce. 8.
-
-    _ Sce. 9.
-
-    _ Sce. 10.
+      * SCE. 9.
 SCENA. 1.Vranio, Carino.THe place is euer good, where any thriues:And euery place is natiue, to the 
-    _ Scene. 1. Act. 1.
+      * SCENA. 1.
 
-    _ Sce. 2.
+      * SCE. 2.
 
-    _ Scene. 3. 
+      * ACTVS. 5 SCE. 3.
 
-    _ Sce. 4.
-
-    _ Sce. 5.
-
-    _ Act. 2. Scene. 1.
-
-    _ Sce. 2.
-
-    _ Scene. 3 Siluio. Dorindo.
-
-    _ Scene 4.
-
-    _ Scene 5.
-
-    _ Scene 6.
-Chorus.Great was her fault and errour ſure,That did occaſion all our teene:Who loues great lawes hol
-    _ Scene 1.
-
-    _ Sce. 2.
-
-    _ Sce. 3.
-
-    _ Scene 4.
-
-    _ Sce. 5.
-
-    _ Sce. 6.
-
-    _ Sce. 7.
-
-    _ Sce. 8.
-
-    _ SCE. 9.
-
-    _ SCE. 1.
-
-    _ SCE. 2.
-
-    _ SCE. 3.
-
-    _ SCE. 4.
-
-    _ SCE. 5.
-
-    _ SCE. 6.
-
-    _ SCE. 7.
-
-    _ SCE. 8.
-
-    _ SCE. 9.
-
-    _ SCENA. 1.
-
-    _ SCE. 2.
-
-    _ ACTVS. 5 SCE. 3.
-
-    _ ACT. 5. SCE. 4. Carino, Montanio,
+      * ACT. 5. SCE. 4. Carino, Montanio,
 Nicander, Mirtillo, Chorus of Shepheards.
 
-    _ ACTA 5. SCE. 5. Montan. Carino, Dametas.
+      * ACTA 5. SCE. 5. Montan. Carino, Dametas.
 
-    _ Act. 5. Sce. 6.
+      * Act. 5. Sce. 6.
 
-    _ Sce. 7.
+      * Sce. 7.
 
-    _ Sce. 8.
+      * Sce. 8.
 
-    _ Sce. 9.
+      * Sce. 9.
 
-    _ Sce. 10.
+      * Sce. 10.
 
 **Types of content**
 
